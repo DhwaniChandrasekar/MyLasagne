@@ -1,0 +1,12 @@
+2 tbsp olive oil, plus a little for the dish
+750g lean beef mince
+90g pack prosciutto
+half quantity of our tomato sauce
+200ml hot beef stock
+a little grated nutmeg
+300g pack fresh lasagne sheets
+half quantity of our white sauce
+125g ball mozzarella, torn into thin strips
+
+
+Recipe taken from: https://www.bbcgoodfood.com/recipes/classic-lasagne-0
